@@ -1,1 +1,1 @@
-# Projeto-T-picos-em-Inform-tica-e-Educa-o
+# Projeto Tópicos em Informática e Educação
